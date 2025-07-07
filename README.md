@@ -13,6 +13,6 @@
 无需担心隐私问题，观看过程完全匿名，安全可靠。我们专注于为用户提供流畅的观看体验，确保无任何打扰。无论你是使用手机还是电脑，都能享受高清影片。
 立即访问，畅享日本AV免费资源，尽情体验高清、流畅的观影乐趣。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/pk20250707/pk13 ）</span>
 
 
